@@ -1,1 +1,0 @@
-# houseware_internship_assignment
